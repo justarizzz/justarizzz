@@ -8,8 +8,9 @@ My musical tastes are random, but mainly I listen to hyperpop/electronic music (
 I don't have romantical relationships. Please, **DO NOT TEXT** me about being my boyfriend and don't ask why. Also, I'm mentally unstable :D
 
 ## My contributions to Saberpedia (articles, edits, etc.)
-*https://saberpedia.no/Remonter
-https://saberpedia.no/RX4D*
+*https://saberpedia.no/Remonter*
+
+*https://saberpedia.no/RX4D*
 
 ## Social networks
 Telegram channels: *https://t.me/madebynightcord
