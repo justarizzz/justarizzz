@@ -13,8 +13,7 @@ I don't have romantical relationships. Please, **DO NOT TEXT** me about being my
 *https://saberpedia.no/RX4D*
 
 ## Social networks
-Telegram channels: *https://t.me/madebynightcord
-https://t.me/eepyaria*
+Telegram channels: *https://t.me/madebynightcord*
 
 Youtube: *https://youtube.com/@NightcordP*
 
