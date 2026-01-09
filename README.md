@@ -1,4 +1,7 @@
 ## Hello! My name is Aria, or aria_nightcord!
+
+![Welcome to Ari's GitHub!](https://github.com/justarizzz/justarizzz/blob/2ae6b85c04620b7dee2a73caade4e92b1980b567/Untitled9_20260109221518.png)
+
 I'm a 16-year-old girl who identifies herself as genderfluid. Making things I love from the bottom of my heart. Have a nice day!
 
 Full name: Kabanbaeva Aria. A tech girl, musician, kinda designer and just a person. Currently learning HTML+CSS, Python and JavaScript, slowly, but surely. I don't have a PC and I'm working only on a phone. 
