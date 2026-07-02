@@ -16,9 +16,9 @@ I don't have romantical relationships. Please, **DO NOT TEXT** me about being my
 *https://saberpedia.no/RX4D*
 
 ## Social networks
-Telegram channels: *https://t.me/madebynightcord*
+Telegram channel: *https://t.me/mikuryzen*
 
-Youtube: *https://youtube.com/@NightcordP*
+Youtube: *https://youtube.com/@aria_nightcord*
 
 Mastodon: *https://mastodon.ml/@nightcord*
 
