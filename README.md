@@ -4,7 +4,7 @@
 
 I'm a 16-year-old girl who identifies herself as genderfluid. Making things I love from the bottom of my heart. Have a nice day!
 
-Full name: Kabanbaeva Aria. A tech girl, musician, kinda designer and just a person. Currently learning HTML+CSS, Python and JavaScript, slowly, but surely. I don't have a PC and I'm working only on a phone. 
+Full name: Radeonova Aria. A tech girl, musician, kinda designer and just a person. Currently learning HTML+CSS, Python and JavaScript, slowly, but surely. I don't have a PC and I'm working only on a phone. 
 
 My musical tastes are random, but mainly I listen to hyperpop/electronic music (nyan.mp3, Qjangle, Cloudfield/Cloudier/CLOUD_, Дискотека Авария, etc.), J-Pop/J-Rock music (Vocaloid producers/Japanese singers, groups/etc.), Vocal-Synth (Jamie Paige, PinocchioP, mididuck, cosMo@Bousou-P, DECO*27, etc.), rock (Metallica, Тараканы, Дайте танк (!), etc.) and other music genres. 
 
